@@ -48,7 +48,7 @@ Have Fun!!
 
 
 
-
+https://www.boardgamegeek.com/thread/1939855/unlikely-pack-misfits-character-analysis-war-mine
 Strategy for boardgame:
 I haven’t seen any in-depth character reviews or strategies yet, so let’s see if we can fix that. This is taking longer to complete than expected, so I’ll cover half here, and the other half in a follow-up post. 
 
