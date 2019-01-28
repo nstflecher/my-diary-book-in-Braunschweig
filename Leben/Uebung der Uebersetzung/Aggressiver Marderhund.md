@@ -1,9 +1,9 @@
-# Aggressiver Marderhund ### 
+# Aggressiver Marderhund 
 
-## Braunschweig, 28. Januar 2019 Stadt Braunschweig, Referat Kommunikation
-### Symbolbild: Marderhund. (Foto: CC BY-SA 3.0/Martin E. Walder)
-### Symbolbild: Marderhund.
-#### (Foto: CC BY-SA 3.0/Martin E. Walder)
+### Braunschweig, 28. Januar 2019 Stadt Braunschweig, Referat Kommunikation
+##### Symbolbild: Marderhund. (Foto: CC BY-SA 3.0/Martin E. Walder)
+##### Symbolbild: Marderhund.
+##### (Foto: CC BY-SA 3.0/Martin E. Walder)
 
 <p> Im Bereich zwischen den Schunterwiesen bei Rühme und nördlich von Kralenriede bis zur A 2 ist in den vergangenen Tagen ein aggressiver Marderhund auffällig geworden. Er hat Hunde angegriffen und auch mehrere Menschen gebissen. Anhaltspunkte, dass das Tier an Tollwut erkrankt ist, liegen nicht vor, vielmehr ist eine Staupe-Erkrankung wahrscheinlich. Sie kann nicht auf den Menschen übertragen werden. <p>
 
